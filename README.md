@@ -9,8 +9,8 @@ https://www.youtube.com/watch?v=R74ypcwqZcU
 
 
   <h2>check out more articles :</h2> 
-•	<br><a href="https://sites.google.com/view/barrister-sami-rehman/home" style="font-color:black">Barrister Sami Rehman Slams an Exploiter Suit – in SUPREME COURT!</a>
-•	<br><a href="https://sites.google.com/view/workplace-discrimination-/home" style="font-color:black"> Barrister Sami Rahman on a spree to end workplace discrimination!</a>
-•	 <br><a href="https://sites.google.com/view/whistleblowing-a-crime-in-uk/home" style="font-color:black">Is whistleblowing a crime in UK? Barrister Sami Rahman puts forward a question.</a>
+<br>•	<a href="https://sites.google.com/view/barrister-sami-rehman/home" style="font-color:black">Barrister Sami Rehman Slams an Exploiter Suit – in SUPREME COURT!</a>
+<br>•	<a href="https://sites.google.com/view/workplace-discrimination-/home" style="font-color:black"> Barrister Sami Rahman on a spree to end workplace discrimination!</a>
+<br>•	 <a href="https://sites.google.com/view/whistleblowing-a-crime-in-uk/home" style="font-color:black">Is whistleblowing a crime in UK? Barrister Sami Rahman puts forward a question.</a>
 
 
