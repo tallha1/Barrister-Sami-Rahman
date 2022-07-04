@@ -1,6 +1,6 @@
 
-<a href="https://iamsamirahman.com/" style="text-color:black">Barrister Sami Rahman speaks at the Direct Access Risk and Rewards seminar — sets precedent for excellence and transparency!</a>
-The decision to allow patients to access certain health fields through direct access was made according to the highest standards of care, and it was based on a comprehensive review of the available evidence. One of the key findings of the review was a literature review that assessed the effects of various interventions on patient safety.
+<a href="https://iamsamirahman.com/" style="text-color:black"><h1>Barrister Sami Rahman speaks at the Direct Access Risk and Rewards seminar — sets precedent for excellence and transparency!<h1></a>
+<br>The decision to allow patients to access certain health fields through direct access was made according to the highest standards of care, and it was based on a comprehensive review of the available evidence. One of the key findings of the review was a literature review that assessed the effects of various interventions on patient safety.
 However, a public seminar was much needed to assess the situations and if the pros outweighed the cons.
 A seminar was announced for 23 September, 2015 to collect a panel of different barristers to sit together and discuss the applications of Direct Access and whether there could be more improvements.
 The much awaited and much needed opinion came from <a href="https://iamsamirahman.com/" style="text-color:black"> Barrister Sami Rahman</a>, a property and housing Barrister who practices in a range of fields. We have learned so much from him in the fast, that it felt like a relief to be speaking in favor of this controversial topic.
